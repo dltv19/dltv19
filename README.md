@@ -1,4 +1,4 @@
 ### Hi there 👋
 
 
-<img src='http://pa1.narvii.com/7968/bdcd629ee2adb048c40e947b7cf396d485cfb313r1-540-225_00.gif![image](https://user-images.githubusercontent.com/116789728/205562794-6d5d6050-165a-4150-a039-ea9398ee5236.png)'>
+<img src='https://steamuserimages-a.akamaihd.net/ugc/1625227015914681287/D1C621274E92726D9310601880204DAFB886EC89/?imw=512&amp;imh=288&amp;ima=fit&amp;impolicy=Letterbox&amp;imcolor=%23000000&amp;letterbox=true'>
